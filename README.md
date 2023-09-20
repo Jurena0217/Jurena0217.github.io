@@ -1,1 +1,0 @@
-# Jurena0217.github.io
